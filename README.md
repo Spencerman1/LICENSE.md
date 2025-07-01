@@ -1,1 +1,3 @@
+This declaration does NOT waive, abandon, or forfeit any sovereign intellectual property rights, authorship, or jurisdictional standing.  
+It supersedes prior documents solely for the purpose of correcting jurisdictional structure, eliminating descriptive bottlenecks, and establishing the updated sovereign framework governing this intellectual property.  
 This project is protected under a strict intellectual property license. The LICENSE.md outlines usage rights, restrictions, and legal protections for Mint-to Logic™, governed by Southern Star Pro. Studios LLC and originating from documented concepts dating back to Undisclosed date.
