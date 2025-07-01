@@ -1,1 +1,1 @@
-This project is protected under a strict intellectual property license. The LICENSE.md outlines usage rights, restrictions, and legal protections for Mint-to Logic™, governed by Southern Star Pro. Studios LLC and originating from documented concepts dating back to 2005.
+This project is protected under a strict intellectual property license. The LICENSE.md outlines usage rights, restrictions, and legal protections for Mint-to Logic™, governed by Southern Star Pro. Studios LLC and originating from documented concepts dating back to Undisclosed date.
